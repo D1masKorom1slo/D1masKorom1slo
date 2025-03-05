@@ -2,7 +2,7 @@
 - 👀 I’m interested in osapkgv
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...ijihgfytrghjkl
+- 📫 How to reach me ...fcdrsercgfj
 - 😄 Pronouns:ydtj
 - ⚡ Fun fact: hihihih
 
